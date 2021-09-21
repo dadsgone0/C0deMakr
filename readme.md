@@ -1,1 +1,1 @@
-#Welcome! i make shit thats (soemtimes) cool. Anyways check out my things
+#Welcome! i make shit thats (some times) cool. Anyways check out my things
